@@ -1,5 +1,6 @@
 - https://linkedin.com/jaztynn
 - https://https://www.youtube.com/@jaztynn
+- https://www.twitch.tv/jaztynn
 - https://medium.com/@jaztynn
 
 <!---
