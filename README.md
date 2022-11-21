@@ -1,6 +1,6 @@
 - https://linkedin.com/in/jaztynn
-- https://codeopen.io/jaztynn
-- https://https://www.youtube.com/@jaztynn
+- https://codepen.io/jaztynn
+- https://www.youtube.com/@jaztynn
 - https://www.twitch.tv/jaztynn
 - https://medium.com/@jaztynn
 
